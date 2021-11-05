@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Jecikaa
+- 👀 I’m interested in coding and photography...
+- 💞️ I’m looking for intern or job in the field of programing ...
+
+
+
